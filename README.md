@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Rutvik1966
+- 👋 Hi, I’m @Rutvik1966 a Final year Student of Nirma University😍.
 - 👀 I’m interested in WebDevelopment,UX/UI Design,Graphics Design,Content Writer,Local SEO ,Digital Marketing.
 - 🌱 I’m currently learning Threat Response and Threat Analysis.
 - 💞️ I’m looking to collaborate on Company and Professionals to help them and help to get solution in digital world. 
